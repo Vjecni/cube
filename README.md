@@ -1,5 +1,5 @@
 
-**Just4Fans: A Thriving Gaming Community**
+# **Just4Fans: A Thriving Gaming Community**
 
 Just4Fans is a dynamic social media platform designed exclusively for gamers. It fosters a vibrant community where you can:
 
