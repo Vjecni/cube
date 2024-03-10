@@ -1,6 +1,6 @@
-# **Just4Fans: The Ultimate Gaming Community Hub**
+# **CubeX: The Ultimate Gaming Community Hub**
 
-Just4Fans is more than just a social media platform – it's a vibrant ecosystem designed by gamers, for gamers. Here, you can:
+CubeX is more than just a social media platform – it's a vibrant ecosystem designed by gamers, for gamers. Here, you can:
 
 * **Showcase Your Skills:** Share your epic gaming highlights, clutch moments, and awe-inspiring victories. Let the world witness your prowess and inspire fellow gamers.
 * **Connect and Discuss:** Interact with other passionate gamers, discuss your favorite titles, strategies, and industry news. Forge friendships, find teammates, and build a network within the gaming world.
@@ -9,7 +9,7 @@ Just4Fans is more than just a social media platform – it's a vibrant ecosystem
 
 ## **Thriving Game Communities**
 
-Just4Fans empowers individual game communities to flourish. Create dedicated spaces for your favorite titles, complete with:
+CubeX empowers individual game communities to flourish. Create dedicated spaces for your favorite titles, complete with:
 
 * **Customizable Rules:** Establish your own community guidelines to foster a healthy and inclusive environment.
 * **Targeted Advertising:** Promote your community to attract new members who share your passion. 
@@ -21,7 +21,7 @@ Just4Fans empowers individual game communities to flourish. Create dedicated spa
 
 ## **Earning Your Rewards**
 
-Just4Fans rewards your engagement and contributions to the community. Earn coins through:
+CubeX rewards your engagement and contributions to the community. Earn coins through:
 
 * **Content Engagement:** Get likes, shares, and comments on your posts to rack up coins.
 * **Highlight Views:** Share your epic moments and earn coins based on the views you generate.
@@ -36,6 +36,6 @@ The dedicated Community Events section empowers you to:
 * **Livestream Events:** Organize watch parties, live discussions, and other interactive events to connect with your fellow gamers.
 * **Strategize and Collaborate:**  Plan raids, guild activities, and other collaborative efforts to achieve in-game success together. 
 
-## **Join the Just4Fans Revolution!**
+## **Join the CubeX Revolution!**
 
-Sign up for Just4Fans today and delve into a world of exhilarating gameplay, engaging discussions, and a supportive community. Together, let's celebrate the joy of gaming and foster a thriving environment where fair play, creativity, and collaboration reign supreme.
+Sign up for CubeX today and delve into a world of exhilarating gameplay, engaging discussions, and a supportive community. Together, let's celebrate the joy of gaming and foster a thriving environment where fair play, creativity, and collaboration reign supreme.
